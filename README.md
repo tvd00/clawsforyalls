@@ -8,3 +8,5 @@ A: Well, let me break it down for you.
 2. Giant Plastic Sword Is a Claw X3 (Good for recording lmao)
 3. The ball is a x claw (Thanks DrNaN)
 Big Credits to @hiyall360 for teaching me how to mod the 3D.
+
+https://mega.nz/file/yZxnXCJa#kF-0gPBaWbCFeNBYOH7xZlL9_OnFtf84CmC-A5Sgqd8
